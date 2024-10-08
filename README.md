@@ -1,2 +1,2 @@
-# data-live-session-dataStudio-
+# data-live-session-dataStudio
 Welcome to dataStudio
