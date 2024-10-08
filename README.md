@@ -8,9 +8,7 @@ This repository is for sharing resources, notes, and code from my **data live se
 
 I also send reminders, session links, and updates about live sessions, linkedln posts, and job opportunities in these channels.
 
-Session Schedule, sessions are held at **9:15 PM** every:
-**Tuesday
-Thursday
-Saturday**
+Session Schedule, sessions are held at **9:15 PM** every: **Tuesday, Thursday, Saturday**
 
 If you’re interested, join the channels to stay updated and access session links.
+❤️Think this is useful? Give me **star** 🌟🌟🌟
