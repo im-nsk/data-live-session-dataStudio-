@@ -10,5 +10,8 @@ I also send reminders, session links, and updates about live sessions, linkedln 
 
 Session Schedule, sessions are held at **9:15 PM** every: **Tuesday, Thursday, Saturday**
 
+**Notes are coming soooooooon. Stay Tuned**
+
+
 If you’re interested, join the channels to stay updated and access session links.
 ❤️Think this is useful? Give me **star** 🌟🌟🌟
